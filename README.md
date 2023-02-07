@@ -1,4 +1,7 @@
-### Hi there 👋
+Hi everyone 👋 This is Muyao Lyu (Clara) :blush: As an MPA student at the School of International and Public Affairs (SIPA) at Columbia University :blue_book:, I specialized in International Finance and Economic Policy & Quantitative Analysis and am passionate about public policy analysis and raising companies’ volume. I enjoy brainstorming :bulb: and have contributed numerous creative ideas during my past work experience as an AAE at BCW. For instance, I envisaged a broad EU alumni network and football training camps to attract public attention to the EU :european_post_office:. By virtue of my plan to emphasize the clean energy and community-building facets of the company :green_heart:, I also helped my former employer to win the pitch of Anglo America. In addition, while developing risk management plans for Nike, Colgate, and VF Group, I collaborated with multiple international teams and coordinated several key proposals :earth_asia:. 
+
+After serving a variety of Fortune Top 500 consumer companies in brand marketing, handling public affairs, and tailoring business strategy, I am now confident in my capability to adapt to fast-paced work and tackle crises in a timely manner :smile:. Further, following the research at Government Thinktanks, Yale University and NGOs, I am now pursuing my master’s degree at SIPA to sharpening my quantitative and qualitative analytical skills. Apart from work and school, I enjoy travelling, cooking, paying Guzheng, and more suprisingly, I am a big NBA fans :basketball:!!! 
+
 
 <!--
 **ClaraLyu/ClaraLyu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
